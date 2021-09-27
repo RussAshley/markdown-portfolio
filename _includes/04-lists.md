@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+* Blood Bowl
+* PC Gaming
+* Tabletop RPGs
+* Marvel Universe
+* Star Wars
+* other geekery...
